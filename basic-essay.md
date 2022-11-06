@@ -1,3 +1,5 @@
+## Road Rage Essay
+
 Road rage is a major problem on America’s roads today. Drivers who get angry behind the wheel often put themselves and others in danger. Road rage can lead to physical altercations, car accidents, and even death.
 
 What is road rage? According to the National Highway Traffic Safety Administration, road rage is “aggressive or violent behavior stemming from actual or perceived unjustified provocation in traffic.” In other words, it’s when drivers get so angry that they lose control and behave dangerously.
@@ -11,8 +13,6 @@ Whatever the cause, road rage is a serious problem. According to a AAA Foundatio
 Road rage can also lead to physical altercations. When drivers are angry, they might get out of their cars to confront other drivers. This can lead to fistfights, or even worse. In some cases, people have been killed in road rage incidents.
 
 So what can be done about road rage? There are a few things that drivers can do to try to keep their cool behind the wheel. First, it’s important to be aware of your own stress levels and try to stay calm while driving. If you feel yourself getting angry, take a deep breath and try to relax. It can also help to give yourself extra time to get where you’re going so that you don’t feel rushed.
-
-If another driver does something to anger you, don’t take the bait. It can be tempting to honk your horn or make a gesture, but that will only escalate the situation. Instead, try to defuse the situation by staying calm and not responding in kind.
 
 Finally, if you see someone driving dangerously, don’t try to stop them yourself. That could make the situation worse. Instead, call the police or pull over to a safe location and let them deal with it.
 
